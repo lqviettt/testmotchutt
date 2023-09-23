@@ -1,3 +1,2 @@
-I'm Le Quoc Viet
-Thich choi tro
+I'm Le Quoc Viet 
 
