@@ -1,4 +1,2 @@
-vai ca lon
-anh
-
+may bi dien a
 
